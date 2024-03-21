@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Winn1337
-- 👀 I’m interested in gaming and animation
+- 👀 I’m interested in video games and animation
 - 🌱 I’m currently learning C# and C++
 - 💞️ I’m looking to collaborate on anything hmu
 - 📫 How to reach me: Discord winn1337
